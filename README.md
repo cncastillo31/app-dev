@@ -21,6 +21,7 @@
 * **Terry Jeffords** – Devoted sergeant who loves yogurt
 * **Rosa Diaz** – Tough and private detective
 * **Charles Boyle** – Loyal best friend and food enthusiast
+* **Gina Linetti** –  Narcissist with high emotional intelligence and very funny
 * **Hitchcock & Scully** – The precinct's most iconic, food-obsessed lazy duo who somehow always get the job done
 
 ## Favorite Moments
@@ -29,7 +30,7 @@
 - Gina leaving everyone their "*Gina Moments*"
 
 ## Top Reasons to Watch
-1. The show is hillarious
+1. The show is hilarious
 2. Life lessons
 3. Amazing character development
 4. Heartwarming
@@ -41,6 +42,7 @@
 * **"The Box"** (Season 5, Episode 14)
 * **"Yippie Kayak"** (Season 3, Episode 10)
 * **"Jake & Amy"** (Season 5, Episode 22)
+* **"Charges and Specs"** (Season 1, Episode 22)
 
 <br>
 <br>
